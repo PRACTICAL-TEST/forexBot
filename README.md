@@ -5,8 +5,8 @@ https://www.goodgpt.co.uk/
 
 
 
-
-
+**92% Accurate 
+**
 
 
 
